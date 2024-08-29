@@ -2,7 +2,7 @@
 ___
 <a href="mailto:rudeusmsk@gmail.com?"><img src="https://img.shields.io/badge/gmail-%23DD0031.svg?&style=for-the-badge&logo=gmail&logoColor=white"/></a>
 ___
-sinh vật cute hoạt động tại đây:  UwU [Facebook nếu OniChan muốn ghé thăm !](https://www.facebook.com/profile.php?id=61556437898740).
+sinh vật cute hoạt động tại đây:  UwU [Facebook ghé thăm !](https://www.facebook.com/profile.php?id=61556437898740).
 <br/>
 hoặc [Facebook cún cơm để kết bạn !](https://www.facebook.com/profile.php?id=100068048301489)-⁠ ＜(´⌯  ̫⌯`)＞
 ___
