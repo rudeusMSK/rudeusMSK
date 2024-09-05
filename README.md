@@ -4,7 +4,7 @@ ___
 ___
 sinh vật cute hoạt động tại đây:  UwU [Facebook ghé thăm !](https://www.facebook.com/profile.php?id=61556437898740).
 <br/>
-hoặc [Facebook cún cơm để kết bạn !](https://www.facebook.com/profile.php?id=100068048301489)-⁠ ＜(´⌯  ̫⌯`)＞
+hoặc [Facebook để kết bạn !](https://www.facebook.com/profile.php?id=100068048301489)-⁠ ＜(´⌯  ̫⌯`)＞
 ___
 ![](https://github-readme-stats.vercel.app/api/top-langs/?username=rudeusMSK&theme=dark&hide_border=false&include_all_commits=false&count_private=false&layout=compact) 
 
