@@ -1,4 +1,4 @@
-- 👋 Hi, I’m rudeusMSK
+- 👋 Hi, I’m rudeusMSK (Huỳnh Thiện Thệ)
 ___
 <a href="mailto:rudeusmsk@gmail.com?"><img src="https://img.shields.io/badge/gmail-%23DD0031.svg?&style=for-the-badge&logo=gmail&logoColor=white"/></a>
 ___
