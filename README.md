@@ -11,6 +11,9 @@ Make friends with me here ! ＜(´⌯  ̫⌯`)＞
 
 ## Dev:
 
+ - I mainly use c# language
+ - I believe I specialize more in BE (backend) development, but I also design and work with FE (frontend).
+
 ![](https://github-readme-stats.vercel.app/api/top-langs/?username=rudeusMSK&theme=dark&hide_border=false&include_all_commits=false&count_private=false&layout=compact) 
 
 ![](https://leetcode.card.workers.dev/IWCZkSX3uu?theme=dark&font=source_code_pro&extension=null)
